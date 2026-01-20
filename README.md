@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# Jalen's UX Journal
